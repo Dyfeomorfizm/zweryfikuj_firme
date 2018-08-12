@@ -1,0 +1,1 @@
+# zweryfikuj_firme
